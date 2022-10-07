@@ -2,7 +2,7 @@
 - 👀 I’m interested in 羽毛球
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me 508271920@qq.com
+- 📫 How to reach me countstarss@163.com
 
 -攻书莫畏难，登山莫畏艰
 -明知有险阻，苦战能过关
