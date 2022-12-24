@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @countstarss / Alex
 - 👀 I’m interested in 羽毛球
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me countstarss@163.com
 
 -攻书莫畏难，登山莫畏艰
