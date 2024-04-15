@@ -1,5 +1,6 @@
-- 👋 Hi, I’m Luke/@countsatrss
-- 👀 I’m interested in 羽毛球
+- 👋 Hi, I’m Luke/@countsatrss.
+- 👀 I’m a collage student major in Software engineering.
+- I am still learning and improving, hoping to become a good developer and founder of a startup.
 - 📫 How to reach me : countstarss@163.com / lukeking404@icloud.com
 
 -攻书莫畏难，登山莫畏艰
