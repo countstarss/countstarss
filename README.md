@@ -3,7 +3,7 @@
 - 🥳 I am still learning and improving, hoping to become a good developer and founder of a startup.
 - 📫 How to reach me : countstarss@163.com / lukeking404@icloud.com
 
-![welcome](/welcome2.gif/)
+![welcome](/WELCOME.gif/)
 
 -攻书莫畏难，登山莫畏艰
 -明知有险阻，苦战能过关
